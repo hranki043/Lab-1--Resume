@@ -1,4 +1,4 @@
-**Abbey Rankins** :mountain: :
+**Abbey Rankins** :mountain:
 ====
 
 <img src="IMG_1028.JPG" width='100'>
