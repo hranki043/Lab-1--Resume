@@ -1,7 +1,7 @@
 **Abbey Rankins**
 ====
 
-<img src="/IMG_1028.JPG" width='100'>
+<img src="IMG_1028.JPG" width='100'>
 
 #### Geography and Planning Senior
 ##### Appalachian State University
